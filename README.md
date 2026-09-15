@@ -1,1 +1,1 @@
-# Sistemas-de-Informa-o-Gerenciais-2026.2
+# Sistemas de Informação Gerenciais 2026.2
